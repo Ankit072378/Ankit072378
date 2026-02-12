@@ -60,7 +60,7 @@ An intelligent system-based project focused on innovative problem solving.
 
 ## 📫 Connect With Me
 
-- 📧 Email: your-email@example.com  
+- 📧 Email: your-1898singhak@gmail.com  
 - 💼 LinkedIn: your-linkedin-profile-link  
 - 🌐 Portfolio: your-portfolio-link  
 
