@@ -60,8 +60,8 @@ An intelligent system-based project focused on innovative problem solving.
 
 ## 📫 Connect With Me
 
-- 📧 Email: your-1898singhak@gmail.com  
-- 💼 LinkedIn: your-linkedin-profile-link  
+- 📧 Email:1898singhak@gmail.com  
+- 💼 LinkedIn:(https://www.linkedin.com/in/ankit-kumar-22b9772ab/)  
 - 🌐 Portfolio: your-portfolio-link  
 
 ---
